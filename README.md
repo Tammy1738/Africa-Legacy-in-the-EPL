@@ -1,5 +1,5 @@
 # Africa-Legacy-in-the-EPL
-
+![](https://github.com/Tammy1738/Africa-Legacy-in-the-EPL/blob/main/Africa's%20Legacy%20In%20the%20Epl.png)
 
 
 From electrifying goals to game-changing assists, African players have left an indelible mark on the English Premier League! 🇳🇬🇸🇳🇨🇮
